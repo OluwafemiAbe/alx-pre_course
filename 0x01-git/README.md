@@ -1,1 +1,1 @@
- I can do hard things
+ I can do hard things and not get tired
